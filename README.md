@@ -24,6 +24,7 @@ Vị trí dự án căn hộ Carillon 4 Tân Phú thuộc khu dân cư hiện h�
 + Cách trung tâm Thành phố 7km
 + Cách UBND Quận Tân Phú, siêu thị Coopmart, 
 +Cách Parkson Flemington, Lotte Mart Lê Đại Hành 3km, khoảng 8 phút đi xe
+
 Mọi thông tin chi tiết xin liên hệ PKD Carillon 4
 Hotline CĐT Sacomreal: 09.321.456.93- Nguyễn Vân Anh
 Email: anhnv@sacomreal.com
