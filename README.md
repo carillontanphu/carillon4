@@ -32,3 +32,4 @@ Mọi thông tin chi tiết xin liên hệ PKD Carillon 4
 Hotline CĐT Sacomreal: 09.321.456.93- Nguyễn Vân Anh
 Email: anhnv@sacomreal.com
 Website: https://sites.google.com/site/carillon456/gioi-thieu
+http://batdongsan.com.vn/ban-can-ho-chung-cu-duong-luy-ban-bich-phuong-hoa-thanh-prj-carillon-4/262a-5m2-1pn-gia-chi-819tr-lh-09-321-56-93-pr8081426 
