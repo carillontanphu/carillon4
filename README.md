@@ -2,6 +2,7 @@
 
 Chỉ 400 tr/căn, tặng trái quyền được chiết khấu cực cao, hưởng lãi suất tới 8,5%/năm
 PKD Sacomreal : 09.321.456.93
+
 I-	THÔNG TIN DỰ ÁN
 Carillon 4 tọa lạc tại 262a Lũy Bán Bích, P. Hòa Thạnh, Quận Tân Phú, TP.HCM
 Chủ đầu tư: Sacomreal 
@@ -9,6 +10,7 @@ Sản phẩm: 1PN: 48,2m2; 50,8m2
 2PN: 64m2 – 67m2
 3PN: 95,3m2
 Giá dự kiến: 18,5tr/m2
+
 II-	CHƯƠNG TRÌNH BÁN HÀNG:
 -	Nhận ký gửi 400 triệu (thanh toán theo tiến độ) hưởng lãi suất 8,5%/năm
 -	Thời hạn tối thiểu 9 tháng, tối đa 1 năm.
@@ -16,6 +18,7 @@ II-	CHƯƠNG TRÌNH BÁN HÀNG:
 -	Tặng Voucher chiết khấu cực cao
 -	Được quyền chuyển nhượng Voucher nếu không có nhu cầu mua căn hộ
 -	Không hạn chế số lượng ký gửi đối với khách hàng.
+
 III-	 LIÊN KẾT VÙNG
 Vị trí dự án căn hộ Carillon 4 Tân Phú thuộc khu dân cư hiện hữu, sinh hoạt sầm uất với cơ sở hạ tầng hoàn chỉnh và kết nối giao thông với các khu vực nội thành thuận lợi, gần các tiện ích y tế, bệnh viện, trường học, siêu thị, chợ hiện hữu, bến xe bus, sân bay. 
 + Chỉ cách khu công viên văn hóa Đầm Sen 500m
